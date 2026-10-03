@@ -70,8 +70,8 @@ I'm particularly interested in **Data Analytics, Research Analytics, Operations 
 
 ## 📫 Connect With Me
 
-* LinkedIn: [Add your LinkedIn profile]
-* Email: [Add your professional email]
-* GitHub: [Your GitHub username]
+* LinkedIn: www.linkedin.com/in/kleber-jhoel
+* Email: kleberj.moranv@gmail.com
+* GitHub: kleberj-moranv
 
 
